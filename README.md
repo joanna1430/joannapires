@@ -11,4 +11,4 @@ joanna.pereira@escola.pr.gov.br
 
 @joannapires
 
-(https://tenor.com/pt-BR/view/baby-today-laughing-inlove-heart-happy-gif-15721046)
+![](https://media1.tenor.com/m/nlk61YhNqwkAAAAC/credits-to-milkmochabear-milk-and-mocha.gif)
